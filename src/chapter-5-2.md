@@ -1,5 +1,4 @@
-Chapter 5: Receiving Feedback with Openness and Grace: Managing Emotions and Defensive Behaviors
-================================================================================================
+# Managing Emotions and Defensive Behaviors
 
 Receiving feedback with openness and grace is critical for using feedback effectively for personal and professional growth. In this chapter, we will explore techniques for managing emotions and defensive behaviors when receiving feedback.
 

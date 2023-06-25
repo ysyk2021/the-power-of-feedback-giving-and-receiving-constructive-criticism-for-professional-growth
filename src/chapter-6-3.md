@@ -1,5 +1,4 @@
-Chapter 6: Using Feedback for Professional Growth: Implementing Actionable Changes
-==================================================================================
+# Implementing Actionable Changes
 
 Using feedback for professional growth requires implementing actionable changes based on the feedback received. In this chapter, we will explore techniques for implementing actionable changes based on feedback.
 

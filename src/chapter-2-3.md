@@ -1,5 +1,4 @@
-Chapter 2: Overview of Feedback: Techniques for Overcoming Common Challenges in Giving and Receiving Feedback
-=============================================================================================================
+# Techniques for Overcoming Common Challenges in Giving and Receiving Feedback
 
 Feedback is an essential tool for professional growth and development, but it can also be challenging to give and receive. In this chapter, we will explore common challenges in giving and receiving feedback and provide specific techniques for overcoming them.
 

@@ -1,5 +1,4 @@
-Chapter 5: Receiving Feedback with Openness and Grace: Techniques for Receiving Feedback with Openness and Grace
-================================================================================================================
+# Techniques for Receiving Feedback with Openness and Grace
 
 Receiving feedback with openness and grace is critical for using feedback effectively for personal and professional growth. In this chapter, we will explore techniques for receiving feedback with openness and grace.
 

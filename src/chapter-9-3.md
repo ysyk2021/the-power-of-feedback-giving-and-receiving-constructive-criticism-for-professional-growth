@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Feedback Efforts: Encouraging a Growth Mindset
-====================================================================
+# Encouraging a Growth Mindset
 
 Encouraging a growth mindset is critical for sustaining feedback efforts. In this chapter, we will explore the importance of a growth mindset and techniques for encouraging it.
 

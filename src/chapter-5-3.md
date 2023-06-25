@@ -1,5 +1,4 @@
-Chapter 5: Receiving Feedback with Openness and Grace: Seeking Clarification and Asking Questions
-=================================================================================================
+# Seeking Clarification and Asking Questions
 
 Receiving feedback can be challenging, but it is critical for personal and professional growth and development. In this chapter, we will explore techniques for receiving feedback with openness and grace, including seeking clarification and asking questions.
 

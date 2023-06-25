@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Feedback Efforts: Techniques for Sustaining Feedback Efforts
-==================================================================================
+# Techniques for Sustaining Feedback Efforts
 
 Sustaining feedback efforts is critical for ongoing growth and success. In this chapter, we will explore techniques for sustaining feedback efforts.
 

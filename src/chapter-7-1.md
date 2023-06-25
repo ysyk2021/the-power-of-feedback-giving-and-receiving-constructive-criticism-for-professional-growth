@@ -1,5 +1,4 @@
-Chapter 7: Enhancing Team Performance through Feedback: Techniques for Enhancing Team Performance through Feedback
-==================================================================================================================
+# Techniques for Enhancing Team Performance through Feedback
 
 Feedback is not only important for individual growth, but also for enhancing team performance. In this chapter, we will explore techniques for enhancing team performance through feedback.
 

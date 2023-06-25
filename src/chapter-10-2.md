@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Final Recommendations for Giving and Receiving Constructive Criticism
-=============================================================================================
+# Final Recommendations for Giving and Receiving Constructive Criticism
 
 As we conclude our discussion on the power of feedback, let's review some final recommendations for giving and receiving constructive criticism.
 

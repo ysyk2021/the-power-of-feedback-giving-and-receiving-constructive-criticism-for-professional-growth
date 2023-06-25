@@ -1,5 +1,4 @@
-Chapter 4: Giving Effective Feedback: Establishing Clear Objectives and Expectations
-====================================================================================
+# Establishing Clear Objectives and Expectations
 
 Giving feedback is an important part of professional growth and development. However, to be effective, feedback must be clear, specific, and tied to clearly established objectives and expectations.
 

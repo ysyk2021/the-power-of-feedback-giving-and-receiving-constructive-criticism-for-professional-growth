@@ -1,5 +1,4 @@
-Chapter 3: Understanding Feedback: Identifying Types of Feedback
-================================================================
+# Identifying Types of Feedback
 
 Understanding the different types of feedback is essential for receiving and giving feedback effectively. By identifying the type of feedback being given, we can better understand its purpose and use it as a tool for growth and development.
 
