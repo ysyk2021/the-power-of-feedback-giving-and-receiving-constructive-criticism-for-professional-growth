@@ -1,4 +1,3 @@
-# Establishing Key Performance Indicators (KPIs)
 
 Measuring and evaluating feedback effectiveness is critical for ensuring that feedback is being used effectively for personal and professional growth. In this chapter, we will explore techniques for establishing Key Performance Indicators (KPIs) to measure and evaluate feedback effectiveness.
 

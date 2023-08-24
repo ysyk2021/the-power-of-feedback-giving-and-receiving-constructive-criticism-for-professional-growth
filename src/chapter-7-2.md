@@ -1,4 +1,3 @@
-# Building a Culture of Feedback
 
 Building a culture of feedback is critical for enhancing team performance. In this chapter, we will explore techniques for building a culture of feedback.
 

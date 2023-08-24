@@ -1,4 +1,3 @@
-# Creating a Development Plan
 
 Creating a development plan is critical for using feedback effectively in professional growth. In this chapter, we will explore the importance of creating a development plan and techniques for doing so.
 

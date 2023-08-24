@@ -1,5 +1,3 @@
-Chapter 4: Giving Effective Feedback
-====================================
 
 Giving effective feedback is a crucial skill for professional growth and development. By using specific techniques and establishing clear objectives and expectations, feedback can be delivered in a constructive and impactful manner.
 

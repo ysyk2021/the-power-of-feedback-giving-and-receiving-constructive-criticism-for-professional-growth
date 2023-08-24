@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Feedback Effectiveness
-==========================================================
 
 Feedback is a valuable tool for professional growth, but it's important to measure and evaluate its effectiveness. By analyzing feedback and making improvements, we can ensure that it is contributing to our development and success.
 

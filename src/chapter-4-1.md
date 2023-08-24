@@ -1,4 +1,3 @@
-# Techniques for Giving Effective Feedback
 
 Giving effective feedback is a skill that can be developed with practice. By using specific techniques, feedback can be delivered in a clear, constructive, and impactful manner.
 

@@ -1,4 +1,3 @@
-# Encouraging a Growth Mindset
 
 In the pursuit of professional growth, cultivating a growth mindset is essential. In this chapter, we will explore the concept of a growth mindset, its importance in the feedback process, and strategies for fostering a growth mindset in both giving and receiving feedback.
 

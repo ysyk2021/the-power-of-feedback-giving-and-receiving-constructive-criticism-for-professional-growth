@@ -1,5 +1,3 @@
-Chapter 2: Overview of Feedback
-===============================
 
 Feedback is a critical tool for personal and professional growth and development. In this chapter, we will explore different perspectives and approaches to feedback, the impact of feedback on personal and professional development, and techniques for overcoming common challenges in giving and receiving feedback.
 

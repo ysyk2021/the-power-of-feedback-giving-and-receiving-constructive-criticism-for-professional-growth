@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we have explored the power of feedback for personal and professional growth and development. We have discussed strategies for giving and receiving constructive criticism, as well as techniques for using feedback effectively to achieve our goals.
 

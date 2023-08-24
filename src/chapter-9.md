@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Feedback Efforts
-======================================
 
 Sustaining feedback efforts is critical for ensuring that feedback is used effectively for personal and professional growth. In this chapter, we will explore techniques for sustaining feedback efforts.
 

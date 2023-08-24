@@ -1,4 +1,3 @@
-# Providing Specific Examples and Suggestions
 
 Providing specific examples and suggestions is essential for giving effective feedback. By being clear and specific, feedback can be actionable and lead to real improvement.
 

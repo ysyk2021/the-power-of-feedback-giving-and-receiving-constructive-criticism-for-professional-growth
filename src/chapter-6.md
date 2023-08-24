@@ -1,5 +1,3 @@
-Chapter 6: Using Feedback for Professional Growth
-=================================================
 
 Feedback is a powerful tool for personal and professional growth and development. In this chapter, we will explore techniques for using feedback for professional growth, including creating a development plan and implementing actionable changes.
 

@@ -1,4 +1,3 @@
-# Techniques for Understanding Feedback
 
 Understanding feedback is essential for receiving and giving feedback effectively. By using specific techniques, feedback can be better understood and used as a tool for growth and development.
 

@@ -1,4 +1,3 @@
-# Different Perspectives and Approaches to Feedback
 
 Feedback is an essential tool for personal and professional growth and development. In this chapter, we will explore different perspectives and approaches to feedback.
 

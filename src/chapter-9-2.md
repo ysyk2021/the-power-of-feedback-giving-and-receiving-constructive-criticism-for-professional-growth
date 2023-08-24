@@ -1,4 +1,3 @@
-# Continuous Learning and Improvement
 
 Sustaining feedback efforts requires continuous learning and improvement. In this chapter, we will explore the importance of continuous learning and improvement in sustaining feedback efforts.
 

@@ -1,4 +1,3 @@
-# Seeking Clarification and Asking Questions
 
 Asking questions and seeking clarification are essential skills in the feedback process. In this chapter, we will explore why seeking clarification is crucial and discuss effective strategies for asking questions that enhance understanding and promote meaningful dialogue.
 

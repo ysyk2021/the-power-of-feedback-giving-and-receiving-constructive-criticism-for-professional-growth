@@ -1,5 +1,3 @@
-Chapter 5: Receiving Feedback with Openness and Grace
-=====================================================
 
 Receiving feedback is an important part of professional growth and development. However, it can be challenging to receive feedback without becoming defensive or emotional. By using specific techniques, feedback can be received with openness and grace.
 

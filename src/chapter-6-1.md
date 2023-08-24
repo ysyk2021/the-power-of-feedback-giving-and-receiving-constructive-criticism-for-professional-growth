@@ -1,4 +1,3 @@
-# Techniques for Using Feedback for Professional Growth
 
 Using feedback effectively is critical for personal and professional growth and development. In this chapter, we will explore techniques for using feedback for professional growth.
 

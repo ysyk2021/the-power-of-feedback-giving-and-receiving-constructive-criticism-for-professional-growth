@@ -1,5 +1,3 @@
-Chapter 3: Understanding Feedback
-=================================
 
 Understanding feedback is essential for giving and receiving feedback effectively. By using specific techniques, identifying types of feedback, and exploring the relationship between feedback and personal responsibility, feedback can be better understood and used as a tool for growth and development.
 

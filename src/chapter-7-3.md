@@ -1,4 +1,3 @@
-# Providing Feedback Training and Support
 
 Feedback is an essential tool for enhancing team performance. However, to ensure its effectiveness, it's important to provide feedback training and support to team members.
 

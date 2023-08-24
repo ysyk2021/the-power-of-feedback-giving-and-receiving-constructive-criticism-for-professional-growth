@@ -1,5 +1,3 @@
-Chapter 7: Enhancing Team Performance through Feedback
-======================================================
 
 Enhancing team performance through feedback is critical for achieving desired outcomes. In this chapter, we will explore techniques for enhancing team performance through feedback.
 
