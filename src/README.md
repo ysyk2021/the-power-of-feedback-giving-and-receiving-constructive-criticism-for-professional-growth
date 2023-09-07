@@ -8,3 +8,7 @@ Whether you're a manager, employee, or freelancer, "The Power of Feedback" has s
 So why wait? Start unlocking the power of feedback today, and take control of your professional growth!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
