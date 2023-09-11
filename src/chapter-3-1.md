@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Understanding Feedback
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore techniques for understanding feedback. Understanding feedback effectively is crucial for deriving its full value, identifying areas for improvement, and utilizing feedback as a catalyst for personal and professional growth.
 

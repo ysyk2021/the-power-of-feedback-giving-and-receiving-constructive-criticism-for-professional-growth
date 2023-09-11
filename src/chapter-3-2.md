@@ -1,5 +1,4 @@
-Chapter 4: Identifying Types of Feedback
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the various types of feedback that individuals can encounter in their personal and professional lives. Understanding the different types of feedback is crucial for recognizing its purpose, impact, and how to effectively respond to it.
 

@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Giving Effective Feedback
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore techniques for giving effective feedback. By mastering these techniques, individuals can provide feedback in a constructive and impactful manner, facilitating growth and development.
 

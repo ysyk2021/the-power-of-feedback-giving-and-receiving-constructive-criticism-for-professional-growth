@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Sustaining Feedback Efforts
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore techniques for sustaining feedback efforts. Consistently incorporating feedback into your professional growth journey is essential for long-term development and continuous improvement. These techniques will help you establish a feedback-rich environment that supports ongoing learning and growth.
 

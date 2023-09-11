@@ -1,5 +1,4 @@
-Chapter 12: Providing Feedback Training and Support
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the importance of providing feedback training and support to individuals and organizations. By equipping individuals with the necessary skills and resources, feedback can be effectively given and received, fostering a culture of growth and continuous improvement.
 

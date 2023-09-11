@@ -1,5 +1,4 @@
-Chapter 6: Different Perspectives and Approaches to Feedback
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the significance of considering different perspectives and approaches when giving and receiving feedback. By embracing diverse viewpoints and adapting our feedback style, we can enhance the effectiveness of the feedback process and support comprehensive professional growth.
 

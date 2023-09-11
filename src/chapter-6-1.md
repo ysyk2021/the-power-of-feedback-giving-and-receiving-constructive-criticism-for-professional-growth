@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Using Feedback for Professional Growth
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore techniques for effectively using feedback to drive personal and professional growth. By leveraging feedback in strategic ways, individuals can maximize their learning, development, and overall success.
 

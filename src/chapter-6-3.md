@@ -1,5 +1,4 @@
-Chapter 6: Implementing Actionable Changes
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the process of implementing actionable changes based on received feedback. By effectively translating feedback into concrete actions, individuals can drive their own professional growth and make meaningful improvements in their performance.
 

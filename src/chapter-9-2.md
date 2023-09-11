@@ -1,5 +1,4 @@
-Chapter 10: Continuous Learning and Improvement
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the concept of continuous learning and improvement. Embracing a mindset of continuous learning is essential for personal and professional growth, and feedback plays a crucial role in this process. We will discuss strategies and techniques to foster continuous learning and leverage feedback for ongoing improvement.
 

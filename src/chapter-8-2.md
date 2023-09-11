@@ -1,5 +1,4 @@
-Chapter 7: Establishing Key Performance Indicators (KPIs)
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the process of establishing Key Performance Indicators (KPIs). KPIs are measurable goals or metrics that help individuals and organizations track progress, evaluate performance, and drive improvement. We will discuss the importance of KPIs and provide guidance on how to establish effective KPIs for professional growth.
 

@@ -1,5 +1,4 @@
-Chapter 8: Exploring the Relationship between Feedback and Personal Responsibility
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will delve into the relationship between feedback and personal responsibility. Understanding how feedback and personal responsibility intersect is crucial for individual growth and development, as it empowers individuals to take ownership of their actions, learn from feedback, and drive their professional success.
 

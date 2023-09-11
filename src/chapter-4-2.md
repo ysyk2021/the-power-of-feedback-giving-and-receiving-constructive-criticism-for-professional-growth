@@ -1,5 +1,4 @@
-Chapter 3: Establishing Clear Objectives and Expectations
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Power of Feedback: Giving and Receiving Constructive Criticism for Professional Growth," we will explore the importance of establishing clear objectives and expectations when giving and receiving feedback. By setting a clear framework for performance and behavior, individuals can effectively navigate the feedback process and drive their professional growth.
 
